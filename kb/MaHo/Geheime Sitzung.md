@@ -46,7 +46,7 @@ Recherchen von NIUS legen nahe: Weder gab es einen Geheimplan, noch ging es bei 
 14.01.2024 - 10:44 Uhr
 
 
-**[[BJÖRN HARMS]]** // **[[JAN A. KARON]]**
+**[[Björn Harms]]** // **[[JAN A. KARON]]**
 
 **Es ist eine Enthüllungsgeschichte, die für bundesweites Aufsehen sorgt und seit Tagen die Schlagzeilen dominiert: Das Rechercheportal _Correctiv_ berichtete am Mittwoch über ein im November stattgefundenes Treffen in einer Potsdamer Villa, bei dem sich „hochrangige Politiker“ der AfD und CDU, Unternehmer und rechte Aktivisten getroffen haben sollen, um an einem „Geheimplan gegen Deutschland” zu tüfteln.**
 
