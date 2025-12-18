@@ -1,0 +1,5 @@
+Es handelt sich damit um eine Bezeichnung, die sich von somatischer Verursachung (= **somatogen**) abgrenzt und sich auf körperliche (etwa Bewegungsstörungen) und seelische Störungen und Verhaltensweisen bezieht, die nicht Folge körperlicher Ursachen sind, sondern vielmehr Folge von seelischer Eigengesetzlichkeit. 
+
+So wird z. B. von _psychogener Depression_ gesprochen, womit eine reaktive Depression gemeint ist. Bei einer _psychogenen Lähmung_ ist an eine hysterische Symptomatik gedacht ([[Konversionsstörung]]). _Psychogene Anfälle_ sind nicht organisch bedingte und daher nicht-epileptische Anfälle (vgl. [[Epilepsie]]. Psychogenie bezeichnet damit Abwärts-Effekte.
+
+Psychogene Epidemien bezeichnet Phänomene im Umfeld der Massenpsychose, wie die [[Tanzwut]] des europäischen [[Mittelalter|Mittelalters]] oder die [[Satanismus, Massenhysterie in den 1980ern|Massenhysterie]] rund um den Satanismus in den 1980ern.

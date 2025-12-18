@@ -1,0 +1,1 @@
+Kartenspiel, wird im [[Okkultismus]] und in der [[Esoterik]] auch als Instrument der [[Vorhersage (Orakel)]] und [[Psychoanalyse]] verwendet.

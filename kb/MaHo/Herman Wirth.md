@@ -1,0 +1,9 @@
+Niederländischer Geisteswissenschaftler, NS-Funktionär und Mitbegründer der [[Forschungsgemeinschaft deutsches Ahnenerbe]] der [[SS]].
+
+Herman Wirth vertrat die Ansicht, dass in der Jungsteinzeit die germanischen Völker im Zustand des [Matriarchats](Matriarchat) im Einklang mit der Natur lebten. Zu diesem Zustand, der die „Reinrassigkeit“ der Arier voraussetze, gelte es laut Wirth zurückzukehren. Durch die Durchsetzung des patriarchalen Heerkönigs- und Priestertums und verstärkt mit dem Auftreten des (für Wirth jüdischen und „artfremden“) [Christentums](Christentum), sei dieser paradiesische Urzustand zerstört worden. Der Nationalsozialismus sei ein Versuch gewesen, die „volks- und arteigene, bodenständige Dauerüberlieferung“ wieder hervorzubringen. In seinen Theorien argumentierte Wirth in aller Regel offen rassistisch, antisemitisch und sozialdarwinistisch. So forderte er die Vernichtung von ihm als „lebensunwert“ und „erbrassig minderwertig“ angesehener Menschen.
+
+Wirths historische und ethnographische Thesen wurden und werden von der wissenschaftlichen Fachwelt einhellig abgelehnt und sind durch keinerlei Quellen belegbar. Bei der von Wirth für seine Thesen als Beleg herangezogenen, erstmals 1872 veröffentlichten [[Ura-Linda-Chronik]] – einer angeblich in altfriesischer Sprache verfassten Chronik – handelt es sich nicht um einen uralten Text, sondern um eine zeitgenössische Fälschung.
+
+Der [[Verein „Ur-Europa“]] ging aus der Juni 1957 unter Wirths Mitwirken gegründeten „[[Gesellschaft für europäische Urgemeinschaftskunde]] / Herman Wirth Gesellschaft“ hervor. Ideologisch bezieht er sich auf Wirth und seine Konstruktion einer höherwertigen, nordisch-germanischen Rasse. Wirths Ideen werden in großen Teilen der neuheidnischen Szene rezipiert, teilweise als „völkische Esoterik“ abgelehnt.
+
+

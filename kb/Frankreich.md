@@ -1,0 +1,1 @@
+Frankreich war eines der [[Katholizismus|katholischen]] Länder Europas.

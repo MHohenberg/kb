@@ -1,0 +1,1 @@
+[Radikalkatholische](Katholizismus) Glaubens- und Priestergemeinschaft, die traditionalistisch an dem sogenannten lateinischen Ritus festhält. 

@@ -1,0 +1,2 @@
+Von [[Aleister Crowley]] als  Gegenentwurf zum [[Christentum]] gegründete Religion.
+Crowley behauptete, in [[Ägypten]] 1904 von einer Entität namens [[Awaz]] eine Reihe heiliger Schriften erhalten zu haben.

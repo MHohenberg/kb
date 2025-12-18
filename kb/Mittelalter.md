@@ -1,0 +1,1 @@
+je nach Region eine Phase, die vor allem durch [[Feudalismus]] geprägt wird. In Europa, circa 500 n. Chr. bis 1500 n. Chr., in Japan bis 1868.

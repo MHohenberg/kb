@@ -1,0 +1,1 @@
+Heiliges Buch des [[Judentum]]s, enthält unter anderem den Pentarch, die fünf Bücher Mose.

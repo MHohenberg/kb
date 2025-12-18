@@ -1,0 +1,3 @@
+Symbol aus 12 in Ringform gefasstengespiegelten Siegrunen oder drei übereinander gelegten Hakenkreuzen. Vorbild ist ein Bodenornament in gestalt eines Sonnenrads, das von der [[SS]] im Nordturm der [[Wewelsburg]] eingelassen wurde.
+
+Das Ornament wurde erst 1991 mit dem älteren esoterisch-neonazistischen Konzept der Schwarzen Sonne identifiziert. Die Schwarze Sonne ist seit den 1990er-Jahren ein Ersatz- und Erkennungssymbol in der rechtsesoterischen bis rechtsextremen Szene.

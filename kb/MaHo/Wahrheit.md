@@ -1,0 +1,1 @@
+* [[Francis Bacon]]: Meditationes Sacrae (1579): "Knowledge itself is power"

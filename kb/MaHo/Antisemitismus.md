@@ -1,0 +1,1 @@
+(Irrationaler) Hass gegen das [[Judentum]] im Allgemeinen und [[Juden]] im Besonderen. In vielen Ländern eine Straftat.

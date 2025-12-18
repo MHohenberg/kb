@@ -1,0 +1,1 @@
+Einer der Hauptbestandteile von [[Ayahuasca]]-Zubereitungen. Baut sich extrem schnell ab, deshalb werden oft MAO-Hemmer dazu gegeben, um den Effekt zu verlängern.

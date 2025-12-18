@@ -1,0 +1,1 @@
+Gruppe zum Schein zum Islam konvertierter [[Juden]] in der Tradition [[Sabbatai Zevi]]s, die 1924 aus der Türkei nach Thessaloniki auswanderten. Der Gruppe wird nachgesagt, nur Scheinmuslime zu sein und im privaten weiter jüdisch zu leben. 

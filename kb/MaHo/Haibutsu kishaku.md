@@ -1,0 +1,1 @@
+Immer wieder auftretende Bestrebungen in [[Japan]], den [[Buddhismus]] zu verbannen. Zuletzt während der [[Meiji-Ära]] (dort in Verbindung mit [[Shinbutsu-Bunri]], den Versuch, den bis dahin eng verwobenen [[Shinto]] vom Buddhismus zu trennen.)

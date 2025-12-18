@@ -1,0 +1,1 @@
+Herausgeber der [[Blätter aus Prevorst]] und später des [[Magikon (Magazin)|Magikon]] (ca. 1850)

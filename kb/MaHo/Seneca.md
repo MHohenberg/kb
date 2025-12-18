@@ -1,0 +1,1 @@
+Ein Hütten, Seneca, Poporage durch ein Museum. Sie fragt Leute, ob sie glauben, dass ein Programm, dies oder jenes sei. Immer antwortet sie sauer auf. Nein. Schließlich sagt sie, dass es Zeit ist, alles mögliche nach ihm zu benennen. Das mache das Leben für alle nur schwerer.weil nichts mehr zu googeln ist. 

@@ -1,0 +1,18 @@
+Stadt in [[Japan]], Präfektur [[Ibaraki]]. 
+
+Standort eines Wiederaufbereitungswerkes für Kernelemente. Vor allem bekannt wegen des Atomunfalls von 1999, der bis dahin schwerste Unfall innerhalb Japans. 
+
+# Atomunfall von 1999
+INES4, Zwei tote Mitarbeiter, die versuchten, einen für 2,4 kg Uran zugelassenen Behälter mit 16,8 kg zu befüllen, was die Kritikalitätsgrenze überschritt. 
+
+Am 30. September 1999 gegen 10.35 Uhr Ortszeit wurde erstmals Alarm in der Brennelementefabrik ausgelöst. Erst nach zwei Stunden wurde begonnen, die anliegenden Einwohner zu evakuieren. Weitere 310.000 Menschen wurden in der Umgebung per Lautsprecher aufgefordert, ihre Häuser nicht zu verlassen. Schüler wurden sofort nach Hause entlassen. Außerdem wurde der Radius um die Brennelemente-Fabrik um 350 Meter abgesperrt.
+
+Es dauerte mehrere Stunden, bis der damalige Premierminister [[Keizō Obuchi]] von dem schweren Vorfall erfuhr. Die [internationale Atomenergiebehörde](https://de.wikipedia.org/wiki/Internationale_Atomenergie-Organisation "Internationale Atomenergie-Organisation") (IAEA) ging damals davon aus, dass ein hoch technologisiertes Land wie Japan gegen ein solches Atomunglück gerüstet sei. Jedoch waren die Verantwortlichen zu diesem Zeitpunkt nicht in der Lage, die Bevölkerung und die Regierung rechtzeitig zu informieren.
+
+Nachdem ein speziell für die Abwehr von chemischen Angriffen ausgerüstetes Team den Unfallort erreicht hatte, stellte sich schnell die Hilflosigkeit gegen nukleare Kontamination heraus. Selbst in einer Atomstadt wie Tokaimura war von den Behörden kein Evakuierungs- und Katastrophenplan für einen Ernstfall vorbereitet worden. Auch für Krisensituationen war nicht geübt worden, da man die Bevölkerung nicht unnötig hatte beunruhigen wollen. Der Nachrichtenagentur [Kyōdō](https://de.wikipedia.org/wiki/Ky%C5%8Dd%C5%8D_Ts%C5%ABshinsha "Kyōdō Tsūshinsha") wurde vom Regierungssprecher mitgeteilt, dass die Regierung nur langsam auf den Vorfall reagierte und die Situation unterschätzt habe. Bereits nach dem [Atomunfall von 1997](https://de.wikipedia.org/wiki/T%C5%8Dkai_\(Ibaraki\)#Nuklearindustrie "Tōkai (Ibaraki)") in derselben Stadt waren in der Bevölkerung Zweifel aufgekommen, ob die Atomanlagen des Landes ausreichend sicher waren. Dadurch war die japanische Atomlobby stark in der Kritik.
+  
+Im Umkreis von zehn Kilometern konnte weder in Regen- noch in See- oder Meerwasser oder in der Trinkwasserversorgung [Radioaktivität](https://de.wikipedia.org/wiki/Radioaktivit%C3%A4t "Radioaktivität") festgestellt werden. Jedoch wurde von der Regierung befohlen, dass Bauern ihr Gemüse und ihre Milch vernichten sollen, und Fischer bekamen Auslaufverbot.
+
+Bei gewonnenen Proben aus der Präfektur Ibaraki, in der die Küstenstadt Tokaimura liegt, wurde nachgewiesen, dass Meeres- und auch Landtiere keine erhöhten Strahlungswerte aufwiesen. Landwirtschaftliche Produkte wiesen in Bodenproben ebenfalls keine erhöhten Strahlungswerte auf. Lediglich in 15 von 115 Gemüseproben konnte radioaktives [Iod](https://de.wikipedia.org/wiki/Iod "Iod") nachgewiesen werden. Sie lag unter dem japanischen Grenzwert.
+
+Die fünf leitenden Angestellten wurden zu einer Gefängnisstrafe zwischen zwei und drei Jahren auf Bewährung verurteilt. Der Leiter der Brennelementefabrik wurde zu drei Jahren Haft, die auf fünf Jahre Bewährung ausgesetzt wurde, und einer zusätzlichen Bußgeldzahlung von umgerechnet 3.900 Euro verurteilt.

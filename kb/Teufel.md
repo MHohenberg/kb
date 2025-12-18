@@ -1,0 +1,1 @@
+Etymologisch von Sanskrit *[[deva]]*, etwa "göttliches Wesen" 

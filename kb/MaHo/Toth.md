@@ -1,0 +1,1 @@
+Ägyptischer Gott, wird häufig mit einem Ibiskopf dargestellt, ist der Erfinder der Schriftkunst und der [[Magie]].

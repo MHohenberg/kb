@@ -1,0 +1,1 @@
+Rechts-völkischer Kulturhistoriker. Hauptwerk "Der Mythus des 20. Jahrhunderts" versucht eine Konstruktion einer kulturschöpfenden nordisch-arischen Rasse im Kontrast zu einer konsumierend-zerstörerischen semitischen Rasse (zu der er ausdrücklich neben dem [[Judentum]] auch den [[Islam]] zählt)

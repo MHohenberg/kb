@@ -1,0 +1,1 @@
+In [Gnosticism](Gnostizismus), the imperfect christian Creator-god. Often used synonymously with Saklas, though the [[Gospel of Judas]], these two are different entities (with Saklas being lower-ranked).

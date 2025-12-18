@@ -1,0 +1,1 @@
+Science as a gnostic dogmatic quasi-Religion. "Trust the Science"

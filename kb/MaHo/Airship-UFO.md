@@ -1,0 +1,1 @@
+Phänomen in den 1890-1920ern, in dem Menschen [[UFO]]s gesehen haben, die entweder Luftschiffe waren, oder als Plattformen an Luftschiffen befestigt waren

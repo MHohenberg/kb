@@ -1,0 +1,1 @@
+Albert Richard Riedel (geb. 1911) hatte 1960 die [[Paracelsus Research Society]] (später das Paracelsus College) in Utah gegründet, die es sich zur Aufgabe gemacht hat, die Alchemie u. verwandte Gebiete zu erforschen.

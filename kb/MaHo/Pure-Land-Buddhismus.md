@@ -1,0 +1,3 @@
+Spielart des [[Buddhismus]]. 
+
+Idee: die von uns bewohnte Welt ist verhältnismäßig ungeeignet, Erleuchtung und damit ein Entkommen ins Nirvana zu erreichen. Ziel ist also nicht die direkte Erleuchtung, sondern das Anhäufen guter Taten, um in der nächsten Reinkarnation in einer günstigeren Welt zu erreichen. Alternativ kann auch die Rezitation von Mantras oder Anrufungen von Buddhas im Moment des Todes dazu führen.

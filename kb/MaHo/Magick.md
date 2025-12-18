@@ -1,0 +1,1 @@
+„Ritual causation“ -> „You do a thing, something happens“

@@ -1,0 +1,2 @@
+[[AfD]]-Politiker
+Zunächst Management-Position bei [[Bayer]], dann AfD-Bundestagsabgeordneter, später AfD-Referent von [[Alice Weidel]]. Nimmt im November 2023 angeblich an der sogenannten [[Geheime Sitzung]] teil.

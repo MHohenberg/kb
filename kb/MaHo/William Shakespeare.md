@@ -1,0 +1,1 @@
+Britischer Autor von Bühnenstücken. Mutmaßlich ein Pseudonym von [[Francis Bacon]].

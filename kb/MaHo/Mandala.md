@@ -1,0 +1,1 @@
+Mandala begegnen uns unter anderem in den Rosenfenstern [katholischer](Katholizismus) Kathedralen.

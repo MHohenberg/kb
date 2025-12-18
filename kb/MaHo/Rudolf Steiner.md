@@ -1,0 +1,1 @@
+Gründer der [[Anthroposophie]], aus der sich unter anderem die [[Waldorf-Pädagogik]] ableitet.

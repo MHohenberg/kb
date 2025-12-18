@@ -1,0 +1,1 @@
+japanische [[Zen]]-Sekte. Benannt nach den beiden Begründern **Sō**san und **Tō**san.

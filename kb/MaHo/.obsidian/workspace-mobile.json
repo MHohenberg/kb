@@ -1,0 +1,288 @@
+{
+  "main": {
+    "id": "933f6dd10c1d8c8b",
+    "type": "split",
+    "children": [
+      {
+        "id": "efc9f5a8797579bd",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "12945f2f2fc7bc9e",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Adolf Hemberger.md",
+                "mode": "source",
+                "backlinks": true,
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "Adolf Hemberger"
+            }
+          },
+          {
+            "id": "aad29f34a0087239",
+            "type": "leaf",
+            "state": {
+              "type": "empty",
+              "state": {},
+              "icon": "lucide-file",
+              "title": "New tab"
+            }
+          },
+          {
+            "id": "e2f5bea8143c53d6",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Schleierhof, Namensbedeutung.md",
+                "mode": "source",
+                "backlinks": true,
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "Schleierhof, Namensbedeutung"
+            }
+          },
+          {
+            "id": "c4eec405b513c544",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Andy men talk uk.md",
+                "mode": "source",
+                "backlinks": true,
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "Andy men talk uk"
+            }
+          },
+          {
+            "id": "588e799e0d8dfbc9",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "morgenroutine.md",
+                "mode": "source",
+                "source": false,
+                "backlinks": true,
+                "backlinkOpts": {
+                  "collapseAll": false,
+                  "extraContext": false,
+                  "sortOrder": "alphabetical",
+                  "showSearch": false,
+                  "searchQuery": "",
+                  "backlinkCollapsed": false,
+                  "unlinkedCollapsed": true
+                }
+              },
+              "icon": "lucide-file",
+              "title": "morgenroutine"
+            }
+          }
+        ],
+        "currentTab": 4
+      },
+      {
+        "id": "4c4de9bc8e9117b9",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "11b08c5b3234922b",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Arier, Farben.md",
+                "mode": "source",
+                "backlinks": true,
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "Arier, Farben"
+            }
+          }
+        ]
+      }
+    ],
+    "direction": "vertical"
+  },
+  "left": {
+    "id": "ac99760b776dc715",
+    "type": "mobile-drawer",
+    "children": [
+      {
+        "id": "87023a8a39010ada",
+        "type": "leaf",
+        "state": {
+          "type": "file-explorer",
+          "state": {
+            "sortOrder": "alphabetical",
+            "autoReveal": false
+          },
+          "icon": "lucide-folder-closed",
+          "title": "Files"
+        }
+      },
+      {
+        "id": "0f5412b9c3334eee",
+        "type": "leaf",
+        "state": {
+          "type": "search",
+          "state": {
+            "query": "",
+            "matchingCase": false,
+            "explainSearch": false,
+            "collapseAll": false,
+            "extraContext": false,
+            "sortOrder": "alphabetical"
+          },
+          "icon": "lucide-search",
+          "title": "Search"
+        }
+      },
+      {
+        "id": "803b947b7c7f513f",
+        "type": "leaf",
+        "state": {
+          "type": "tag",
+          "state": {
+            "sortOrder": "frequency",
+            "useHierarchy": true
+          },
+          "icon": "lucide-tags",
+          "title": "Tags"
+        }
+      },
+      {
+        "id": "60d0b4710b4922f0",
+        "type": "leaf",
+        "state": {
+          "type": "bookmarks",
+          "state": {},
+          "icon": "lucide-bookmark",
+          "title": "Bookmarks"
+        }
+      },
+      {
+        "id": "6eb8087dae41ae1b",
+        "type": "leaf",
+        "state": {
+          "type": "all-properties",
+          "state": {
+            "sortOrder": "frequency",
+            "showSearch": false,
+            "searchQuery": ""
+          },
+          "icon": "lucide-archive",
+          "title": "All properties"
+        }
+      }
+    ],
+    "currentTab": 0
+  },
+  "right": {
+    "id": "c017964e4fe953c4",
+    "type": "mobile-drawer",
+    "children": [
+      {
+        "id": "4cdfd6fdd8a53048",
+        "type": "leaf",
+        "state": {
+          "type": "backlink",
+          "state": {
+            "file": "Projekt Krämer.md",
+            "collapseAll": false,
+            "extraContext": false,
+            "sortOrder": "alphabetical",
+            "showSearch": false,
+            "searchQuery": "",
+            "backlinkCollapsed": false,
+            "unlinkedCollapsed": true
+          },
+          "icon": "links-coming-in",
+          "title": "Backlinks"
+        }
+      },
+      {
+        "id": "2a669d191d062822",
+        "type": "leaf",
+        "state": {
+          "type": "outgoing-link",
+          "state": {
+            "file": "Projekt Krämer.md",
+            "linksCollapsed": false,
+            "unlinkedCollapsed": true
+          },
+          "icon": "links-going-out",
+          "title": "Outgoing links"
+        }
+      },
+      {
+        "id": "daf260f0177b52fe",
+        "type": "leaf",
+        "state": {
+          "type": "outline",
+          "state": {
+            "file": "Projekt Krämer.md"
+          },
+          "icon": "lucide-list",
+          "title": "Outline"
+        }
+      }
+    ],
+    "currentTab": 0
+  },
+  "left-ribbon": {
+    "hiddenItems": {
+      "bases:Create new base": false,
+      "random-note:Open random note": false,
+      "publish:Publish changes...": false,
+      "switcher:Open quick switcher": false,
+      "graph:Open graph view": false,
+      "canvas:Create new canvas": false,
+      "daily-notes:Open today's daily note": false,
+      "templates:Insert template": false,
+      "command-palette:Open command palette": false
+    }
+  },
+  "active": "588e799e0d8dfbc9",
+  "lastOpenFiles": [
+    "Virtuelle Assistenten - Abkürzungen und Bezeichnungen.md",
+    "morgenroutine.md",
+    "\"Die Datenbank\".md",
+    "Downton Abbey, Schloss.md",
+    "Blaubrust-Pipra.md",
+    "Projekt Krämer.md",
+    "Letterkenny.md",
+    "Andy men talk uk.md",
+    "Schleierhof, Namensbedeutung.md",
+    "Phineas Gage.md",
+    "3D-Druck-Business.md",
+    "Lüftungsgitter.md",
+    "Aspspark.md",
+    "2021.md",
+    "2022.md",
+    "Schrauben.md",
+    "CCTV w",
+    "Jenny getränkehalter.md",
+    "Traum/2023-10-10.md",
+    "Arier, Farben.md",
+    "Hohenlohekreis.md",
+    "Clients - how to get good ones.md",
+    "Walter Englert.md",
+    "Untitled.canvas",
+    "Seneca.md",
+    "Notizen Joe Dispenza on Jay Shetty Podcast.md",
+    "Leber.md",
+    "Helmut Barthel.md",
+    "Templates",
+    "Japan, Kunst"
+  ]
+}

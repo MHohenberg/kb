@@ -1,0 +1,1 @@
+Die Sterndeutung - die Bezugsetzung des 'himmlischen Uhrwerks' auf die Geschicke des Irdischen. Vgl. Hermetisches Prinzip "Wie oben, so unten"

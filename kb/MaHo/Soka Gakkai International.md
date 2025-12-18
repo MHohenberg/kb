@@ -1,0 +1,1 @@
+Sektenartige Organisation im Umfeld des [[Nichiren]]-Buddhismus

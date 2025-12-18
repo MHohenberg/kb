@@ -1,0 +1,6 @@
+
+## Peterson and the Daoists
+
+For [Peterson](Jordan%20Peterson), Order and [chaos](Chaos) seem to have a distinct hierarchical value: he understands order as that what is beneficial to an individual and to society as a whole: being orderly, taking up responsibility, ... Chaos, on the other hand, is the turmoil a person who is experiencing bad things finds themselves in: Nothing goes the right way, the individual finds itself as a playthings to forces greater than himself. Peterson's main teaching is that by slowly clawing little things that the individual can control back, and improving in small steps, they can once again come to the right, light, order-controlled side. 
+
+[Daoists](Daoismus), on the other hand, understand order and chaos as two necessary sides of the same concept: Without chaos, how would you know what order is? Without order, how would you know you're living in chaos? In fact, they consider chaos as a necessary aspect: only in chaos, creativity, innovation or art can thrive. Too much order similarity is considered to be unhealthy. To them, it is best to find the balance between order and chaos. 

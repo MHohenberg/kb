@@ -1,0 +1,1 @@
+Ehemaliger Vorsitzender der [[AfD]] Brandenburg. Wurde aus der Partei ausgeschlossen wegen offensichtlich rechtsextremer und nazistischer Umtriebe.

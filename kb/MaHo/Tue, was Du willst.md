@@ -1,0 +1,3 @@
+- Im Altägyptischen: "Tue, was dein Ka liebt", d.h. Tue, was Du willst.
+- Motto des [[Hellfire Club]]
+- Zentrales Element der [[Thelema]] 

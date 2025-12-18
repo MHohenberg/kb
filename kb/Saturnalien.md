@@ -1,0 +1,3 @@
+Die saturnalia – zu Deutsch Saturnalien – **waren ein römisches Fest, das am 17.** **Dezember anlässlich des Jahresendes gefeiert wurde**. Ursprünglich dauerte es wohl nur einen Tag, über die Jahrhunderte verlängerten sich die Feierlichkeiten aber bis auf fünf Tage unter [[Kaiser Caracalla]] (188-217 n. Chr.).
+
+Die Saturnalien gelten als einer der heidnische Vorläufer des sie ersetzenden Weihnachtsfest. 

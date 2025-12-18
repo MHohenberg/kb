@@ -1,0 +1,1 @@
+[[NSDAP]]-Mitglied, Reichsführer [[SS]]

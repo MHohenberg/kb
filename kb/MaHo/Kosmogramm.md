@@ -1,0 +1,1 @@
+Religionswissenschaftlich: Ein Bild, das ein Konzept des gesamten Kosmos darstellt (etwa [[Baum des Lebens]], [[Taijitu]], Darstellung der [[Weltenesche]] in nordischen Religionen...)

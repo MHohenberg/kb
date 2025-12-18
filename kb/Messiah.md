@@ -1,0 +1,1 @@
+Der Betriff ist ursprünglich hebräisch (messiach) und ein jüdisch-religiöser Terminus, wurde später aber vom Christentum und anderen Religionen teils deckungsgleich, teils einfach nur in der Bedeutung von "göttlicher Gesandter" adoptiert. 

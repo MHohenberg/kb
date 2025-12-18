@@ -1,0 +1,1 @@
+[[Anthony Peake]] believes that a 'diat' is when a daimon and an eidolon share the same consciousness.

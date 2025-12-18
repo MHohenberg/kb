@@ -1,0 +1,2 @@
+Eigentlich **Giuseppe Balsamo**. Aka. "Graf Pellegrini"
+Hochstapler. Okkultist. Möglicherweise verwickelt in die Halsbandaffäre. Sein "ägyptischer Ritus der Freimaurerei" gilt als Vorläufer des [[Memphis-Misraïm-Ritus]].

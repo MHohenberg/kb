@@ -1,0 +1,1 @@
+Amerikanischer Anthropologe. Beschäftigte sich mit [[MaHo/Schamanismus]]. Begründer der Idee des [[Core Shamanism]].

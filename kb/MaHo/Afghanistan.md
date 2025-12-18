@@ -1,0 +1,1 @@
+Afghanistan gilt als "Friedhof der Imperien", weil es immer wieder erfolglos von militärisch deutlichen Stärkeren Weltmächten angegriffen wurde, unter anderem [[Großbritannien]], der [[UdSSR]] und den [[Vereinigten Staaten]].

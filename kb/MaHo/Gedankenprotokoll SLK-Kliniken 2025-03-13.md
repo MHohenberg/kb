@@ -1,0 +1,23 @@
+# Gedankenprotokoll SLK-Kliniken 2025-03-13
+
+Dies ist eine kurzen Zusammenfassung aller Informationen, die ich heute erhalten habe, einfach damit alles noch mal an einem Platz gesammelt ist.
+
+Es wurden durchgeführt: eine Endoskopie am Monitor durch den jungen Arzt, ein Ultraschall durch den jungen Arzt, eine weitere Endoskopie durch ein Okular durch die Oberärztin (Doktor Aurich). Dabei wurden zwei Gewebeveränderungen festgestellt, laut Doktor Aurich ist die erste Gewebeänderung operativ entfernbar, für die zweite Gewebeveränderung ist noch nicht klar, wie die Operation durchzuführen ist. Unstrittig ist in beiden Fällen, dass die Gewebeentfernung vorgenommen werden muss.
+
+Bei der ersten Endoskopie (auf dem Monitor) konnte ich eine Stelle ausmachen, die farblich offensichtlich anders war als auf der anderen Seite. Eindruck war hellbraun gräulich im Verhältnis zu dem rosa rötlichen, normalen Gewebe. Das Ganze wirkte wie eine Eiterblase,
+
+Während der Ultraschalluntersuchung wurden zwei Bereiche vermessen, die als deutlich sichtbare dunkle, einförmig-ovale Blasen wirkten. Falls der Maßstab auf beiden Aufzeichnungen identisch war (konnte ich nicht sehen, ich saß circa 4 m entfernt). Dann ist die eine Stelle etwa 1,5-2 mal so groß wie die andere.
+
+Während der Vermessung dieser Stellen beim Ultraschall schaute der junge Arzt mehrfach auf ein Schaubild, dass an der Wand hing, und wohl eine Klassifikation von Karzinomen basierend auf der Position am Hals beschrieb. Ich glaube nicht, dass Mutter das mitbekommen hat. Beim späteren Gespräch mit der Oberärztin verwendete diese - nach weitere Untersuchung in einem MRT und dem CT - potentielle Therapieansätze, die möglich und je nach Ergebnissen des Pathologen gegeben sein könnten, darunter rein operative Entfernung, aber auch die Worte Bestrahlung und Chemotherapie sind im Nebensatz gefallen. Auch hier glaube ich nicht, dass Mutti das bewusst wahrgenommen hat.
+
+Über den gesamten Behandlungsraum war Mutti eigentlich guter Dinge, und hat gut mitgemacht. Kritisch wurde die Sache erst, nachdem wir nach 1 Stunde Wartezeit die Terminvereinbarungen empfangen hatten, und die Sachbearbeiterin den Fahrplan beschrieb. Erst hier und erst beim Reizwort MRT setzt sich eine Widerstandhaltung ein, und ich musste eindrücklich auf Mutter einreden, damit sie die Sache nicht sofort cancelt. Der Sachbearbeiterin war die Sache offensichtlich unangenehm, und sie wollte wohl auch Diskussionen vermeiden. Deswegen gab sie uns die Visitenkarte, man 'könne sich das ja noch mal überlegen'. Das war aber die Schwester im Sekretariat, nicht ein Arzt und es war keine medizinische Meinung.
+
+Der Fahrplan sieht folgendermaßen aus:
+
+* Für die Aufnahme benötigt Mutti einen Einweisungsschein vom Hausarzt ODER vom HNO-Arzt. Dazu soll sie die heute ausgehändigten Unterlagen mitbringen, die Ärzte wüssten dann Bescheid. Es handelt sich wohl um eine bürokratische Formalität, welche (Mutmaßung) auch sehr kurzfristig nach telefonischer Anmeldung erfolgen kann, so dass keine lange Wartezeit entsteht. Ich schlug ihr vor, das sofort zu erledigen, auf dem Heim auf der Heimfahrt, aber sie wollte nur noch nach Hause.
+* Am 20. März um 8:15 Uhr erfolgt ein Gespräch mit dem Anaestologen, im Anschluss ein MRT. Auch hierzu soll sie die Unterlagen mitbringen, insbesondere die Erklärungdokumente.
+* Am 24. März erfolgt die Aufnahme auf Station, die Biopsie unter Vollnarkose, sowie am nächsten Tag ein CT. Nach meinem aktuellen Verständnis erfolgt danach eine Entlassung nach Hause. Das entnommene Gewebe wird von einem Pathologen begutachtet, und es wird ermittelt, ob es sich um eine gutartige Buchung handelt oder nicht.
+
+--- persönliche, nicht medizinische Meinung.
+
+Ich habe durch die verschiedenen Anzeichen (auch dem Umstand, dass dieser ganze HNO Bereich an vielen Stellen auf Krebserkrankungen hingewiesen hat, Selbsthilfegruppen angepriesen hat, die Station sich wohl auf Kopfkarzinom spezialisiert hat, den Eindruck erhalten, dass hier tatsächlich potentiell von einer Krebserkrankung auszugehen ist. Ich hatte nicht den Eindruck, dass ihr versucht wird, ein Krankenhaus zu subventionieren mit unnötigen Behandlungen. Die sind gut ausgelastet. Auch der Umstand, dass die Ärztin eine Terminvergabe "zügig" anforderte, deutet für mich darauf hin, dass hier nicht auf Zeit gespielt werden sollte. Im besten Fall handelt es sich um eine sehr frühzeitige Erkennung, und es ist alles super behandelbar. Und wenn es kein Krebs ist: auch gut, aber dann wissen wir es wenigstens. Viel besser, als jetzt aus emotionalen Gründen eine Diagnose zu unterbinden, und später irreparable Spätfolgen zu haben.

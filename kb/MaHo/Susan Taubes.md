@@ -1,0 +1,1 @@
+Autorin, Ehefrau von [[Jacob Taubes]]

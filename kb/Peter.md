@@ -1,0 +1,2 @@
+Geht nach der Kreuzigung Jesu nach [[Rom]] und wird dort erster Bischof - und damit direkter Vorläufer aller [[Papst|Päpste]]. Ist angeblich unter dem Petersdom begraben.
+#Apostel #Religionsführer #1Jhd 

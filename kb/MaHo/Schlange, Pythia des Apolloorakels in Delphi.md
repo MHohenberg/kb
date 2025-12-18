@@ -1,0 +1,1 @@
+Die Pythia sitzt auf einem Dreisitz, über einer erstspalte, in der ein Rauch aus einer toten Schlange aufsteigt. Genauere Beschreibungen durch Plutarch.

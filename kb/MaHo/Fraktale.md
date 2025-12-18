@@ -1,0 +1,3 @@
+[[Benoit Mandelbrot]]
+
+Vgl. [[Mandala]]

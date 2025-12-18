@@ -1,0 +1,1 @@
+Siedler- und Kolonialstaat. Ergebnis des [[Zionismus]], der Bewegung, einen neuen (je nach Auslegung rein jüdischen) für Juden nach der [[Diaspora, jüdische|Diaspora]] zu schaffen.

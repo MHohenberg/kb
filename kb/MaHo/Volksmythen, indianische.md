@@ -1,0 +1,1 @@
+[[Susan Taubes]] Under the name Susan Feldman, she was the editor of collections of African and Native American tales that, although out of print (and likely out of step with our current moral-aesthetic sensibilities), remain good reading.

@@ -1,0 +1,1 @@
+(1884-1964) ... Gründete durch die Verfassung grundlegender Texte die sogenannte Gardner-[[Wicca]]

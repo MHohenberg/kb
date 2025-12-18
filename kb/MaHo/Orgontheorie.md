@@ -1,0 +1,50 @@
+Entwickelt / entdeckt von [[Wilhelm Reich]].
+
+Parallel zur Weiterentwicklung seiner Therapiemethode begann Reich ab 1934 im Osloer Exil mit experimenteller Laborarbeit. Seit seiner Studienzeit war Reich an den akademischen Naturwissenschaften interessiert und hatte die Entwicklung vor allem der Biologie verfolgt, speziell in Hinblick auf Erkenntnisse zur Sexualität, die in der Psychoanalyse eine zentrale Rolle spielt. Im Jahre 1934 sah er sich aufgrund seiner theoretischen Studien der Arbeiten des Zoologen und Naturphilosophen [Max Hartmann](https://de.wikipedia.org/wiki/Max_Hartmann_\(Zoologe\) "Max Hartmann (Zoologe)"), der Mediziner [Ludwig Robert Müller](https://de.wikipedia.org/wiki/Ludwig_Robert_M%C3%BCller "Ludwig Robert Müller") (_Die Lebensnerven_) und [Friedrich Kraus](https://de.wikipedia.org/wiki/Friedrich_Kraus_\(Mediziner\) "Friedrich Kraus (Mediziner)") (_Die Tiefenperson_) und anderer herausgefordert, eine Synthese ihrer Arbeiten mit seinen Ideen zu versuchen. Dazu sah er eigene experimentelle Arbeit für erforderlich an. Nachdem Versuche, diese zusammen mit Universitätsinstituten durchzuführen, gescheitert waren, richtete er sich ein eigenes Labor ein. Dies war mit [Lichtmikroskopen](https://de.wikipedia.org/wiki/Lichtmikroskop "Lichtmikroskop"), einer Mikrofilmapparatur und einer Reihe von elektrischen Geräten und Instrumenten ausgestattet. Reichs Experimente waren zum einen elektrophysiologische, deren Ergebnisse er in zwei Abhandlungen mitteilte; zum anderen mikrobiologische, die er 1938 in dem Buch _Die Bione_ veröffentlichte.
+
+Als [Bione](https://de.wikipedia.org/wiki/Bion_\(Wilhelm_Reich\) "Bion (Wilhelm Reich)") bezeichnete er von ihm beobachtete mikroskopische Gebilde, die er als „Energiebläschen, die Übergangsstufen zwischen der leblosen und lebenden Substanz darstellen“, interpretierte. Sie entstünden „ständig in der Natur durch einen Auflösungsprozess anorganischer und organischer Materie, der sich experimentell nachvollziehen“ lasse.
+
+Zunächst versuchte Reich, die von ihm beobachteten mikroskopischen Gebilde mittels der ihm bekannten physikalischen Theorien, speziell des Elektromagnetismus, zu interpretieren. Nachdem ihm dies für wesentliche Teile seiner Versuchsreihen nicht gelang, postulierte er die Existenz einer spezifisch biologischen Energie, der er den Namen „Orgon“ gab. Die akademische Wissenschaft hat sich mit Reichs Orgon-Arbeiten nur ganz am Rande befasst (s. Lit: Gebauer/Müschenich; Hebenstreit).
+
+### Beschreibung der Orgonenergie
+
+Im Sommer 1939 war Reich davon überzeugt, dass eine aus Meeressand gewonnene „Bion-Kultur“ sich derart „energetisch“ aufgeladen habe, dass sie an einem [statischen Elektroskop](https://de.wikipedia.org/wiki/Elektroskop "Elektroskop") einen Ausschlag produziere. Reich setzte seine Beobachtung am Meeressand in Beziehung zu eigenen Beobachtungen am Menschen. Vegetativ nicht gestörte Menschen erwirkten, so Reich, am stärksten vom Bauch und den Genitalien her, dass Gummi und Watte sich in derselben Weise energetisch aufluden, dass nach etwa 15 bis 20 Minuten Beeinflussung am statischen Elektroskop ein Ausschlag erfolge.
+
+Anfangs war er davon überzeugt, dass der Sand, aus dem diese „Bione“ durch Glühen und [Quellung](https://de.wikipedia.org/wiki/Quellung "Quellung") entstünden, erstarrte [Sonnenenergie](https://de.wikipedia.org/wiki/Sonnenenergie "Sonnenenergie") sei. Es war für Reich daher naheliegend, Gummi und Watte der grellen Sonnenstrahlung auszusetzen, wobei sie vorher am Elektroskop keinen Ausschlag erzeugten, wohl aber nach dem Lagern in der Sonne. Verschiedene weitere Versuche hatten ihn aber zu der Annahme veranlasst, dass es sich bei der Energie, mit der er es zu tun habe, nicht um eine der bekannten physikalischen Arten von Energie handele. Reich nannte diese Energie ‚Orgon‘. Er behauptete, dass sie außer am pflanzlichen und tierischen Organismus auch im Erdboden, in der Atmosphäre und visuell, thermisch sowie elektroskopisch nachweisbar sei. Reich postulierte, dass Orgonenergie prinzipiell alle Arten von Materie mit unterschiedlicher Geschwindigkeit durchdringe und es demnach nicht möglich sei, einen völlig orgonfreien Raum zu schaffen, wohl aber Orte mit verschiedener Orgonkonzentration. 
+
+[![](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f6/Orgone_Energy_Accumulator_%28right-angle%2C_open%29.JPG/250px-Orgone_Energy_Accumulator_%28right-angle%2C_open%29.JPG)](https://de.wikipedia.org/wiki/Datei:Orgone_Energy_Accumulator_\(right-angle,_open\).JPG)
+
+Orgonakkumulator
+
+### Der Orgonakkumulator
+
+Ein Versuch Reichs, (Orgon-)Strahlung der „Sandbione“ in einem Kasten aus Stahlblech ([Faradayscher Käfig](https://de.wikipedia.org/wiki/Faradayscher_K%C3%A4fig "Faradayscher Käfig")), der mit anorganischem Material (z. B. Steinwolle) umkleidet war, zu isolieren, überzeugte ihn davon, dass sich Orgonenergie aus der Atmosphäre darin akkumuliert habe, d. h. in höherer Konzentration als außerhalb vorhanden sei. Dieser Kasten war der Prototyp des sogenannten „Orgonakkumulators“, der später in verschiedenen Abmessungen gebaut wurde. Reich war der Meinung, dass organische Materie auf Kohlenstoffbasis (Holz, Gummi, Baumwolle etc.) Orgonenergie anziehe und langsam wieder abstrahle, Metall sie dagegen rasch weitergebe bzw. reflektiere. Reich meinte, eine höhere Konzentration von Orgon zu erreichen, wenn er einen Akkumulator mit mehreren Doppelschichten (organisches Material/Stahlwolle) benutzte.
+
+Laut Reich hängt die Orgonakkumulation von verschiedenen Faktoren ab:
+
+- Von der Art der verwendeten Materialien: „Plastik“ sei ein guter, Holz ein schlechter Orgonabsorber, für medizinische Zwecke sei nur Eisen als metallischer Werkstoff zu verwenden.
+- Luftfeuchte: Geringere Luftfeuchtigkeit sei besser, da Wasser Orgonenergie stark anziehe (und über die Luftfeuchte abziehe). Eine relative Luftfeuchtigkeit von 40–50 % sei eine gute Bedingung für die Konzentrierung von Orgonenergie.
+- Geographische Breite: Je näher zum Äquator der Orgonakkumulator aufgestellt werde (geringere nördliche Breite), desto besser sei die „Orgonakkumulation“.
+- Höhe über dem Meeresspiegel: Je größer die Höhe über dem Meer sei, desto geringer sei jene Gaskonzentration in der Luft, die Orgonenergie abziehen könne.
+- Bauart des „Orgonakkumulators“: Es finde eine nichtlineare Verstärkung der „Orgonakkumulation“ mit Steigerung der Anzahl der Doppelschichten statt.
+- Räumlicher Abstand: Die Nähe des Orgon abstrahlenden Körpers zu den Innenwänden des kastenförmigen Orgonakkumulators beeinflusse nach Reich die Konzentration von Orgonenergie. Je geringer der Abstand, desto stärker sei die Orgonbestrahlung.
+- Räumliche Dichte an „Orgonakkumulatoren“: Die räumliche atmosphärische Ladung werde mit steigender Anzahl der Akkumulatoren in einem Raum oder Gebäude vergrößert und desto größer sei die Leistung innerhalb eines Akkumulators.
+
+Als Folge von Orgonakkumulation behauptete Reich folgende Phänomene:
+
+- Es herrsche eine konstant höhere Temperatur im Innern des Orgonakkumulators gegenüber der Außentemperatur (die sogenannte oft zitierte „T0-T-Differenz“)
+- Eine [elektrostatische oder elektrische Auf]Ladung biologischer Präparate habe Reich mit einem [Elektroskop](https://de.wikipedia.org/wiki/Elektroskop "Elektroskop") nachgewiesen
+- Charakteristische [elektrostatische oder elektrische] Potentialveränderungen der Haut der Versuchspersonen, die sich in einem Reichschen „Orgonakkumulator“ aufgehalten hatten, seien beobachtbar
+- Aufleuchten von Zinksulfid nach Durchbiegen einer mit Zinksulfid beschichteten Platte, die mehrere Tage im Orgonakkumulator belassen wurde, sei zu bemerken. Der Lichteffekt verschwinde, nachdem die Platte an der Luft gelegen habe oder öfter durchgebogen worden sei
+- Leucht- und Lichtschwadenerscheinungen auf einer in den Orgonakkumulator eingebauten Platte, die mit einem fluoreszierenden Stoff beschichtet war, sei beobachtbar
+- Das Reagieren einer [Kompass](https://de.wikipedia.org/wiki/Kompass "Kompass")-Magnetnadel beim Annähern an den Orgonakkumulator sei zu verzeichnen: Bei Annäherung zu den Mitten der vier oberen Kanten des quaderförmigen Reichschen Orgonakkumulatorkastens habe sich der magnetische Nordpol zum Orgonakkumulator eingestellt, bei Annäherung an die Mitten der vier unteren Kanten, der magnetische Südpol
+- Ein geladenes Elektroskop entlade innerhalb des Orgonakkumulators deutlich langsamer als außerhalb
+- Es habe Beobachtungen von pulsierendem Flimmern in der nächtlichen Atmosphäre gegeben – mit Hilfe des geschulten Auges und vor allem eines Teleskops mit 60-facher Vergrößerung
+
+### Radioaktivität und tödliche Orgonenergie
+
+Reich war davon überzeugt, in seinem „ORANUR-Experiment“ (**Or**gon **A**gainst **Nu**clear **R**adiation) die Wirkung von physikalischer Radioaktivität auf die Orgonenergie und umgekehrt untersucht zu haben. Dazu wurde ein [Radium](https://de.wikipedia.org/wiki/Radium "Radium")­präparat in einen Orgonakkumulator eingebracht. Reich war der Meinung, hierbei eine „Erhöhung der Hintergrundstrahlung“ festgestellt zu haben. Das „Radium im Orgonakkumulator“ erziele „durch eine [Blei](https://de.wikipedia.org/wiki/Blei "Blei")­abschirmung hindurch eine höhere Impulsfrequenz, als sie in einiger Entfernung vom Akkumulator ohne Bleiabschirmung gemessen“ worden sei, und die „[Atmosphäre](https://de.wikipedia.org/wiki/Atmosph%C3%A4re_\(Astronomie\) "Atmosphäre (Astronomie)") im Orgonraum, im Akkumulator und im gesamten Umkreis des Laboratoriums“ habe sich [elektrostatisch] aufgeladen. In der Folge postulierte Reich zusätzlich die Existenz einer „Tödlichen Orgonenergie“ (DOR=deadly orgone energy) zur Erklärung negativer Wirkungen auf die Atmosphäre und lebende Organismen.
+
+### Orgontherapie
+
+Reich erweiterte nach der „Entdeckung des Orgons“ die Vegetotherapie zur Orgontherapie, bei der zusätzlich zu den psychoanalytischen und vegetotherapeutischen Elementen der Therapiemethode auch Geräte wie der Orgonakkumulator und der „DOR-Buster“ zur Anwendung kamen. Am Therapieziel der Erreichung der „orgastischen Potenz“ hielt Reich fest.

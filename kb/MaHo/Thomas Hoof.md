@@ -1,0 +1,1 @@
+Gründete [[Manufactum]] (später gekauft durch den Otto-Versand), und den [[Manuscriptum]]-Verlag, der später auch rechtskonservative und Verschwörungsliteratur vertrieb.

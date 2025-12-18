@@ -1,0 +1,2 @@
+**Meredith Curly Hunter, Jr.** (October 24, 1951 – December 6, 1969), was an American man who was killed at the 1969 [[Altamont Free Concert]]. 
+During the performance by the [[Rolling Stones]], Hunter approached the stage, and was violently driven off by members of the [[Hells Angels Motorcycle Club]] who had agreed to prevent members of the audience from mounting the stage. He subsequently returned to the stage area, drew a revolver, and was stabbed and beaten to death by Hells Angel [[Alan Passaro]]. Passaro was later acquitted on grounds of self-defense.

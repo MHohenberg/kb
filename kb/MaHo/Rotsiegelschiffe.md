@@ -1,0 +1,1 @@
+japanische Schiffe im 17. Jahrhundert, die unter leichter Bewaffnung (5-6 Kanonen) und mit dem "Roten Siegel des Shogunats" den Handel zwischen [[Japan]] und Süd-Ost-Asien abwickelten. Diese waren oft mit Techniken des westlichen Schiffsbaus konstruiert. 

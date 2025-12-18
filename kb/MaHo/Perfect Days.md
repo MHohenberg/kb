@@ -1,0 +1,2 @@
+Film von [[Wim Wenders]] über einen Toilettenreiniger in Tokyo.
+Gesehen am [[2024-02-14]] im Kino. Ein Film voller Zen. Gezeigt werden mehrere Tage im Leben eines sehr stummen, durchstrukturierten Menschen. 

@@ -1,0 +1,3 @@
+[[Tarot]]
+[[I Ching]]
+

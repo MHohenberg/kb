@@ -1,0 +1,1 @@
+Tonfiguren, ca. 20-40 cm hoch, primitiv aus Ton, im Umfeld von [[Kofun]] vor allem in [[Nara]] gefunden. 

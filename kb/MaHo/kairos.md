@@ -1,0 +1,1 @@
+altgriechisches Konzept der Zeit - neben [[chronos]] - der (messbaren) Zeit. Entspricht im wesentlichen der 'richtigen' Zeit, bedingt durch den '[[Zeitgeist]]'.

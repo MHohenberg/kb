@@ -1,0 +1,1 @@
+Es gibt Hinweise darauf, dass mit 'Schwarzer Magie" die "Magie aus dem Schwarzland" (=Ägypten) gemeint ist (vgl. [[Alchemie]])

@@ -1,0 +1,1 @@
+"Ziel ist es, Meister aller Umstände und Vorbedingungen zu sein"

@@ -1,0 +1,1 @@
+[[Rinzai, Meister aller Umstände]]

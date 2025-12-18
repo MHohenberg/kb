@@ -1,0 +1,5 @@
+US-amerikanischer Rechtsanwalt, Brigadegeneral, Journalist, Autor und [[Freimaurer]]. Er war u. a. ein hervorragender [[Sanskrit]]kenner und beherrschte 16 antike Sprachen.
+
+1859 wählte man ihn zum „Souveränen Großkommandeur“ des Obersten Rates der „Südlichen Jurisdiktion des Alten und Angenommenen Schottischen Ritus von Nordamerika“. Im selben Jahr wurde ihm von der Harvard University ein Ehrendoktortitel (Ph.D.) verliehen. Er blieb 32 Jahre lang bis zu seinem Tod „Souveräner Großkommandeur“.
+
+Einen großen Teil seiner Zeit widmete er sich der Verbesserung der Rituale seiner Loge. Als Hauptwerk veröffentlichte er das Buch _Morals and Dogma of the Ancient and Accepted Scottish Rite of Freemasonry_ (Erstausgabe 1872, letzte Neuauflage 2004), welches eine umfassende [philosophische](https://de.wikipedia.org/wiki/Philosophie "Philosophie") und [ethische](https://de.wikipedia.org/wiki/Ethik "Ethik") _[Gradlehre](https://de.wikipedia.org/wiki/Grad_\(Freimaurerei\)#Schottischer_Ritus_\(A.A.S.R.\) "Grad (Freimaurerei)")_ des ursprünglich gegen Ende des 18. Jahrhunderts in Frankreich entstandenen sogenannten „Schottischen Ritus“ beschreibt.

@@ -1,0 +1,1 @@
+großer 20-seitiger Würfel: 300 ml

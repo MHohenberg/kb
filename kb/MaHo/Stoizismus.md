@@ -1,0 +1,1 @@
+Hauptvertreter: [[Marcus Aurelius]]. 

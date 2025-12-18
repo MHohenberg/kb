@@ -1,0 +1,1 @@
+Eigentlich eine darstellung eines vorzivilisatorischen menschlichen Urzustandes, werden Beziehungen zu [[Pan]] und zum [[Teufel]] gezogen. 

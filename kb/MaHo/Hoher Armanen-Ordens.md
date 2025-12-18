@@ -1,0 +1,3 @@
+"The HAO never really crystallized in [[Guido von List|List]]'s lifetime – although it seems possible that he developed a theoretical body of unpublished documents and rituals relevant to the HAO that have only been put into full practice in more recent years"
+
+- List, Guido von (1988). _[The Secret of the Runes](https://en.wikipedia.org/wiki/Das_Geheimnis_der_Runen "Das Geheimnis der Runen") (Guido-von-List-Bücherei 1)_. Translated by [Flowers, Stephen E.](<Stephen E. Flowers>) Rochester, Vermont: Destiny Books. [ISBN](https://en.wikipedia.org/wiki/ISBN_(identifier) "ISBN (identifier)") [0-89281-207-9](https://en.wikipedia.org/wiki/Special:BookSources/0-89281-207-9 "Special:BookSources/0-89281-207-9").

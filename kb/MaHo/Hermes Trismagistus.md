@@ -1,0 +1,1 @@
+Hauptfigur in der [[Hermetik]]. Wird unter anderem mit dem [ägyptischen](Ägypten) Gott [[Toth]] gleichgesetzt. 

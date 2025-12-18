@@ -1,0 +1,1 @@
+Haupttempel des [[Hermetic Order of the Golden Dawn]], 

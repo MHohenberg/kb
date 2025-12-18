@@ -1,0 +1,3 @@
+The DB AG is an objectively bad service provider with a lot of problems, related mostly to criminal negligence of their management and indifference to their staff, most who have no formal training in organizational sciences or basic hospitality. Gone are the Mitropa days of old, when trains arrived on time, and the current organization's grandparent, the Deutsche Bundesbahn, proudly claimed that the trains would arrive, no matter how apocalyptic the weather. Today, it appears the DB AG has only five enemies: Spring, Summer, Fall, Winter, and the customer. 
+
+A lot of the hate the DB AG receives comes down to a population who demands better, who unconsciously holds them to the old German virtues, like punctuality, frugality and cleanliness. 

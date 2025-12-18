@@ -1,0 +1,8 @@
+Aka. "Bruder Saturnus"
+Übersetzte den Schriftwechsel zwischen [[Heinrich Tränker]] und [[Aleister Crowley]], letzterer hielt ihn für "[[Heinrich Tränker]]s bezahlten Sekretär".
+
+Versuchte 1925, sich von seiner Frau scheiden zu lassen (vgl. [[Aleister Crowley]]: Statement of relations between myself,  Aleister Crowley, and Heinrich Tränker (1925)). Crowley beschreibt Frau Germer - die einen medizinischen Doktortitel hatte - als lebensfroh und freundlich, im starken Kontrast zu Germers - mutmaßlich von Tränker inspirierten - Information dass sie morphiumabhängig und diabetisch sei. Crowley mutmaßt, dass die Scheidung von Tränker vorangetrieben wurde, weil nur Germers Frau zwischen ihm und Germers Vermögen stand.
+
+Dem Übersetzer des Theosophen und Rosenkreuzers [[Franz Hartmann]] wird folgender Lebensweg zugeschrieben: Erst ein „berüchtigtes“ Gefängnis am Berliner Alexanderplatz, dann Aufenthalt im KZ Esterwegen. Nach Freilassung und Ausreisegenehmigung ins Ausland (!?) soll er nach Belgien gegangen sei, von wo er Crowley weiterhin unterstützte. Dann ein belgisches (?!) Konzentrationslager, das vermutlich mit Beginn des Krieges für Deutsche angelegt wurde. 1940 (nach deutschem Einmarsch?) Abschiebung nach Frankreich, wo er wiederum 10 Monate im KZ verbrachte. Wohl von den Deutschen befreit durfte er 1941 in die USA emigrieren. Siehe u.a.: E. R. Carmin, „Das schwarze Reich“, Heyne-Verlag, München 1998, Seite 651 f.
+
+Wurde von Crowley nach Ende des 2. Weltkriegs zu seinem OTO-Nachfolger ernannt.

@@ -1,0 +1,14 @@
+[[2023]]
+- Start working on Project [Homestead](Ausweichsitz). Save some money. Find some land. The idea is to have something cheap with lots of space, something you are confident you will be able to 
+  - be able to repair over time
+  - have independent electricity on
+  - have Internet in some way (fibreoptics? Starlink?)
+- Experiment with solar panels as an off-the-grid electricity solution
+- Be in Berlin every 2-3 months
+- Be a lot more present in the Atlassian environment. Write good help articles. 
+- Generally, be a better writer 
+  - Minigoals: One researched essay a month
+- Become a goddamn ACE (and an SPC)
+- Save some money
+  - ... and create further income streams
+- 

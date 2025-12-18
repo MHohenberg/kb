@@ -1,0 +1,1 @@
+Standort des [[St. Louis-Arc]], einer begehbaren Bogenstruktur, die als "Tor zum Westen" (=> westlich des [[Mississippi]]) gilt.

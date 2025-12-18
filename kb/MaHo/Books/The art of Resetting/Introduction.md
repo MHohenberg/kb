@@ -1,0 +1,3 @@
+**Disclaimer:** This text is in no way, shape, or form medical advice. Burnout and related symptoms are serious medical conditions. If you are experiencing them, seek professional help from a psychiatrist and/or psychotherapist if your doctor considers it appropriate.   
+
+This little book is not about diagnosis or treatment. It’s about _what comes after_: a guide to create a plan for rebuilding, and to find ways of living that reduce the risk of ending up in the same place again.

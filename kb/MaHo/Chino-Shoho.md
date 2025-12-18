@@ -1,0 +1,3 @@
+Chino-Shoho (Das Wahre Gesetz / die Wahre Lehre von Chino) ist eine japanische [[Shinshūkyō]], gegründet 1976 von [[Yuko Chino]] als Ausgründung der [[God Light Association]]. Es handelt sich um eine [[Ufo-Sekte]].
+
+1977 eklektischer Spiritualismus mit Versatzstücken abrahamistischer Religionen, Hindu und buddhistischer Volkstraditionen, [[Theosophie]], New-Age-Ideen und Parapsychologie. Daneben Ideen über Physik, ökologische Kriegsführung und Weltraumerforschung. 

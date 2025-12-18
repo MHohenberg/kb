@@ -1,0 +1,1 @@
+Schwedischer Sozialist. 2014-2024 [[NATO]]-Generalsekretär. Seit 2025 Leiter der [[Münchner Sicherheitskonferenz]].

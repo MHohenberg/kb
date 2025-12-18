@@ -1,0 +1,1 @@
+In mittelalterlichen Texten haben Autoren oft - entweder aus Gründen der Anonymität oder um dem eigenen Text eine größere Bedeutung zuzugestehen - unter anderem Namen geschrieben. Dies führt zu einer Reihe von Autoren die als z.B. "Pseudo-Paracelsus" oder "Pseudo-Hermes" bekannt sind.

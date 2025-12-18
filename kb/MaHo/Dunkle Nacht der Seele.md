@@ -1,0 +1,3 @@
+Begriff wird als Allegorie für [[Depression]], aber auch für Reklusion vor einer spirituellen Weiterentwicklung verwendet. 
+
+Palacios nahm den Begriff der „Dunklen Nacht der Seele“ als wesentliche Gemeinsamkeit zwischen dem Werk des [[Johannes vom Kreuz]] (von dem der Begriff ursprünglich stammt) und des [Sufis](Sufismus) [[Ibn ʿAbbād]], denn in diesem passiven Zustand des Menschen offenbare sich Gott am deutlichsten.

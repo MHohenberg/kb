@@ -1,0 +1,6 @@
+  
+Defining battle in the [[Sengoku]] era, 1610. 
+
+The big reason [[Tokugawa Ieyasu]] won the battle at Sekigahara was because of a Samurai Chief named [[Kobayakawa Hideaki]]. Hideaki hated [[Ashida Mitsunari]] and he pretended to be on Ashida's side at the battle, only to switch to Tokugawa's side during the battle because he owed Tokugawa Ieyasu a favour.
+
+  Ishido Katsunari … His interest was actually to respect [[Toyotomi]]'s wish to unite Japan under Toyotomi's banner and groom help groom Hideyori to be a good successor. He was VERY loyal and did his best to save Toyotomi clan and Japan. However he was not "charismatic" and was not popular among his peers in Osaka and other Daimyos. The actual Ishida was not even a part of the five regents but Toyotomi's samurai retainer that happened to be a very good bureaucrat and government administrator and not a military commander. But alas, [[Ieyasu Tokugawa]] "betrayed" the five regents and Toyotomi and eventually became the Shogun. Fate also made him the Shogun that brought the golden age of Japan during [[Tokugawa Shogunate]].  I just wonder what would happen if Japan was united under Toyotomi Shogunate if Tokugawa lost at Sekigahara or failed at the [[Siege of Osaka]] in 1610

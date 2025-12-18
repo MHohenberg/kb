@@ -1,0 +1,1 @@
+Wurde im Rahmen des [Syrischen Bürgerkriegs](Syrischer%20Bürgerkrieg) von Kräften des [Islamischen Staats](Islamischer%20Staat) vandalisiert. 

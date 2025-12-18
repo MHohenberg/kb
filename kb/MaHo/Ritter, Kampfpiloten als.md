@@ -1,0 +1,1 @@
+The fascination with fighter pilots is not the speed or the technology aspect - they function as modern-day knights, fighting on their flying horses, with an air of skill and honour between them. 

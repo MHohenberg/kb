@@ -1,0 +1,1 @@
+Zwei Säulen am Eingang des zweiten (?) Tempels auf dem [[Tempelberg]], eine schwarz, eine weiß. Referenz in der Bibel - heute auch oft in der [[Ritualmagie]], entweder mit kleinen Säulen, oder über Kerzen. 

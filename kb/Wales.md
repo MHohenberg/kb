@@ -1,0 +1,1 @@
+Teilstaat des [[Vereinigten Königreichs]]. Stark landwirtschaftlich geprägt, Schiefer- und Kohleabbau in kleinem Maßstab. 

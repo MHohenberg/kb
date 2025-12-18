@@ -1,0 +1,5 @@
+(9. September 1855 - 9. Januar 1927) war ein britisch-deutscher Philosoph, der Werke über politische [[Philosophie]] und Naturwissenschaften schrieb. Seine Schriften förderten den deutschen Ethnonationalismus, den [[Antisemitismus]] und den wissenschaftlichen Rassismus; er wurde als "rassistischer Schriftsteller" bezeichnet. 
+
+Sein bekanntestes Buch, das 1899 erschienene zweibändige Werk Die Grundlagen des neunzehnten Jahrhunderts, wurde für die pangermanischen völkischen Bewegungen des frühen 20. Jahrhunderts sehr einflussreich und beeinflusste später den Antisemitismus der NS-Rassenpolitik. In der Tat wurde Chamberlain als "Hitlers [[Johannes der Täufer]]" bezeichnet.
+
+Houston Stewart Chamberlain wurde in Southsea, Hampshire, England, als Sohn von Konteradmiral William Charles Chamberlain, RN, geboren. Seine Mutter Eliza Jane, die Tochter von Kapitän Basil Hall, RN, starb, bevor er ein Jahr alt war, so dass er von seiner Großmutter in Frankreich aufgezogen wurde. Sein älterer Bruder war der [[Japanologe]] und Professor der [[Tokyo Imperial University]] [[Basil Hall Chamberlain]].

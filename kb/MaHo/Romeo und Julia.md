@@ -1,0 +1,1 @@
+Deutung als Jungfrauenopfer zur Friedenssicherung in einem rituellen Umfeld (der Mönch und die Zofe als Magier und Hexe). Julia wird von ihrem Vater nach ihrem Tod eine 'Goldene Statue' gespendet, die als Friedenssymbol dienen soll. 

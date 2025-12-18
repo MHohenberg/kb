@@ -1,0 +1,1 @@
+[[UFO-Sekte]]. Bekannt vor allem wegen des erfolgreichen Gruppensuizids 1997

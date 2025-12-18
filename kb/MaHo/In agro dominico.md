@@ -1,0 +1,1 @@
+"Auf dem Acker des Herrn" - Bulle [[Johannes XXII]]s, in der 28 Aussagen [[Meister Eckhart]]s als Irrlehren definiert werden.

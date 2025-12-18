@@ -1,0 +1,1 @@
+von aramäisch Avra Kedavra: Bedeutung: "Ich erschaffe während/wie/dadurch, dass ich spreche"

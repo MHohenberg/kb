@@ -1,0 +1,1 @@
+Januar 2024: Nach der [[Geheime Sitzung]] gibt es erneut Verbotsforderungen durch zahlreiche Bundespolitiker, diese werden aber nicht als erfolgsversprechend interpretiert.

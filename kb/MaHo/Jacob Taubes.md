@@ -1,0 +1,1 @@
+Philosoph, Ehemann von [[Susan Taubes]], galt als Philanderer und grausam. Einfluss auf [[Alain Badiou]] und [[Slajov Zizek]]

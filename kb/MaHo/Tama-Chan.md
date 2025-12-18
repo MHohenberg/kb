@@ -1,0 +1,1 @@
+Robbe, die zwischen August 2003 und April 2004 in japanischen Flüssen unterwegs war und zu einem kleinen Medienevent wurde. 

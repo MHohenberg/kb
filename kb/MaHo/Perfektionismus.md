@@ -1,0 +1,1 @@
+Der Held in seiner eigenen Geschichte zu sein, hat aber eine andere Bedeutungsebene: es geht nicht und darum, sich als Allen darzustellen, sondern sich in eine zu erzählende Geschichte eingebettet zu sehen.

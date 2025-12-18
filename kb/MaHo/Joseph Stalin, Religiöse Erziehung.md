@@ -1,0 +1,11 @@
+>   
+Strange Error About Stalin And Jesuits (N. C. W. C. News Service.)
+>
+New York, Dec. 18.—A reference to "training in a Jesuit school” supposedly received by [[Joseph Stalin]], Soviet Russia dictator and general secretary of the Russian Communist party, made in an editorial of the Baltimore Sun is obviously an error due to a misreading of [[Walter Duranty]]'s article on Stalin in the New York Times. 
+The Sun editorial writer was summarizing the Duranty article, and in the course of the summary said: "Training in a [jesuit](Jesuiten) school, against which he soon revolted, of course, probably furthered both his (Stalin's i notions and practice of rigid self-discipline." 
+Duranty at no point in his article in the Times speaks of Stalin being in a Jesuit seminary; in fact, he tells specifically of the future dictator being in a Russian Orthodox  seminary. His only reference to the Jesuits in connection with Stalin, and the reference over which the Sun writer obviously stumbled, is where he quotes Stalin as giving as one of his reasons for becoming a Marxist, "Jesuistic repression and the martinet intolerance of the Orthodox seminary where I spent some I years." 
+The general understanding has been that Stalin was expelled from the Russian Orthodox seminary at Tiflis, although [[H. R. Knickerbocker]], writing in the New York Evening Post of Monday, quotes Stalin's mother as saying she removed him from the seminary because of his health. 
+Washington, Dec. 18.—The ridiculousness of the idea that Stalin, Soviet Russian dictator, once attended a Jesuit seminary in Russia was brought out here last week by the Rev. Dr. [[Edmund A. Walsh]], S.J., authority on the Russian situation, when he pointed out there was no such Jesuit institution or Jesuits in Russia at the time mentioned. 
+Father Walsh agreed the erroneous statement in the Baltimore Sun was due to a misreading of the Duranty article in the New York Times, and added that the use of the term "Jesuistic” in the Times story was of dubious general value.
+
+-- # The Catholic Transcript, Volume XXXIII, Number 28, 18 December 1930

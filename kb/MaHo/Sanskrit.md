@@ -1,0 +1,1 @@
+Viele Texte des [[Hinduismus]] und des [[Buddhismus]] wurden ursprünglich in Sanskrit verfasst. 

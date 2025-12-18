@@ -1,0 +1,2 @@
+Communist terrorist group in Italy in the late 1970s, a splinter group that left the Italian communist party because they disagreed with their policies about leaving Europe. 
+Murdered several politicians

@@ -1,0 +1,5 @@
+Die Ophiten, auch Ophianer genannt (griechisch Ὀφιανοί Ophianoi, von ὄφις ophis "Schlange"), waren eine christliche [[Gnostizismus|gnostische]] Sekte, die von Hippolyt von Rom (170-235) in einem verlorenen Werk, dem Syntagma ("Anordnung"), beschrieben wurde.
+
+Man geht heute davon aus, dass spätere Berichte über diese "Ophiten" von Pseudo-Tertullian, Philastrius und Epiphanius von Salamis alle auf das verlorene Syntagma des Hippolyt zurückgehen. Es ist möglich, dass Hippolyt den Begriff "Ophiten" als Gattungsbezeichnung für die seiner Meinung nach [[Häresie|häretischen]] Spekulationen über die [[Schlange, biblische|Schlange der Genesis oder Moses]] erfunden hat, und nicht als eigentlichen Sektennamen.
+
+Abgesehen von den Quellen, die direkt von Hippolyt abhängen (Pseudo-Tertullian, Philastrius und Epiphanius), erwähnen auch Origenes und Clemens von Alexandria die Gruppe. Die Gruppe wird von Irenäus in Adversus Haereses (1:30) erwähnt.

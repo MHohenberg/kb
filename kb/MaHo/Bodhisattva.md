@@ -1,0 +1,3 @@
+Figur aus dem [[Mahayana]]-[[Buddhismus]]. Ein Bodhisattva ist eine Person, die bereits die Voraussetzungen zur Buddhaschaft und damit der Auflösung in das Nirvana erfüllt, aber absichtlich wiedergeboren wird, um - in einem Akt des Mitgefühls - anderen zu helfen, die Erleuchtung zu erlangen.
+
+Der [[Dalai Lama]] gilt im tibetischen Buddhismus als Inkarnation des Bodhisattvas des Mitgefühls, **[[Avalokiteśvara]]**.

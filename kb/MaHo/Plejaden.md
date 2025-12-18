@@ -1,0 +1,6 @@
+1. Mythologie
+	1. Griechisch: Sieben Töchter des [[Atlas]]
+	2. Die Kiowa-Indianer nennen den [[Devils Tower]] „Tso-aa“ (engl. Tree Rock, „Baumfels“, wahrscheinlich weil er aufragt wie ein Baum). Ihrer Sage nach entstand der Berg, als ihre Vorfahren in dieser Gegend ein Dorf errichteten. Eines Tages spielten sieben kleine Mädchen in einiger Entfernung zum Dorf. Sie wurden von mehreren Bären entdeckt und die Mädchen eilten zum Dorf. Die Bären jedoch erreichten die Mädchen weit vor dem Dorf. In ihrer Not kletterten die Mädchen auf einen kleinen Felsbrocken. Sie flehten den Stein an: „Fels, habe Mitleid mit uns, Fels rette uns“. Der Fels erhörte die Mädchen und fing an in die Höhe zu wachsen. Die Bären sprangen den Felsen in ihrer Wut an, brachen riesige Felsbrocken aus ihm heraus und kratzten mit ihren Krallen tiefe Rillen und Spalten in den Felsen, jedoch konnten sie die Mädchen nicht erreichen. Der Fels wuchs und wuchs bis in den Himmel hinein. Die Mädchen sind noch immer im Himmel, als sieben kleine Sterne am Firmament: die Plejaden.
+
+2. Sternhaufen im Sternbild [[Stier]]
+	1. daraus basierend Vorlage für die japanische Automarke [[Subaru]], die diesen Sternencluster auch als Logo führt.

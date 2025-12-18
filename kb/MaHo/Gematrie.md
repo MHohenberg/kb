@@ -1,0 +1,3 @@
+Gematrie (von hebräisch גימטריה gimatrija), auch _Gematria_ oder _Gimatria_, ist die [hermeneutische](Hermeneutik), [nummerologische](Nummerologie) Technik der Interpretation von Worten mit Hilfe von Zahlen. Dabei werden Buchstaben nach unterschiedlichen Schlüsseln in ihre entsprechenden Zahlenwerte überführt, um aus diesen Bedeutungen zu erschließen und Beziehungen herzustellen.
+
+"For it is a human number:  666"

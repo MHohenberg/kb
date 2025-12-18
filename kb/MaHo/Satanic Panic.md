@@ -1,0 +1,1 @@
+Massenpsychose in den 1980ern, vor allem in den USA, als überall Satanisten vermutet wurden, die sich vor allem an Kindern in Kindergärten vergingen. 

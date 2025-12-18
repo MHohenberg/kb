@@ -1,0 +1,4 @@
+* [[LSD]]
+* [[DMT]]
+* [[Meskalin]]
+* [[Ayahuasca]]

@@ -1,0 +1,22 @@
+(geboren um 1750; gestorben 1805) Übersetzer rosenkreuzerischer und alchemischer Schriften.
+
+Für die Entwicklung des [[Okkultismus]] in England ist er von Bedeutung durch die sogenannte [[Bacstrom-Society]], eine [rosenkreuzerische](Rosenkreuzer) Gruppe, deren Existenz nicht ganz gesichert ist, die aber als Vorläufer der _[[Societas Rosicruciana in Anglia]]_ und damit weiterer moderner hermetischer und rosenkreuzerischer Bewegungen gilt.
+
+Während seines Aufenthalts in Mauritius soll Bacstrom am 12. September 1794 von einem [[Comte Louis de Chazal ]]in eine Bruderschaft von Rosenkreuzern aufgenommen worden sein. Ein entsprechendes Dokument ist in einer Abschrift Frederick Hockleys (1809–1885) erhalten. Es enthält ein nach 14 Punkten gegliedertes Versprechen an die Bruderschaft und ist von Bacstrom und Du Chazel, F.R.C. unterzeichnet. Dieser Comte de Chazal soll zum Zeitpunkt der Einweihung Bacstroms McLean zufolge 96 Jahre alt gewesen sein, seine alchemistischen Kenntnisse sollen ihm 1740 in Paris vermittelt worden sein und John W. Hamilton Jones deutet in der Einführung zu Bacstroms Alchemical Anthology an, dass der Lehrer Chazals kein anderer als der [[Graf von Saint Germain]] gewesen sein soll.
+
+Nach seiner Rückkehr nach London verdiente Bacstrom seinen Lebensunterhalt durch den Verkauf von Drucken und Zeichnungen von seinen Reisen sowie als Autor esoterischer Texte. Er übersetzte lateinische, deutsche und französische alchemistische Werke ins Englische und wirkte auf die Mitglieder der Societas Rosicruciana in Anglia wie Hockley und auf die [[Theosophie]] des 19. Jahrhunderts. So publizierte [[Helena Petrovna Blavatsky]] Bacstroms Übersetzung der [[Aurea catena Homeri]] (Golden Chain of Homer) 1891 in der theosophischen Zeitschrift Lucifer. 
+
+Nach Adam McLean soll [[Alexander Tilloch]] (1759–1825), der Begründer des Philosophical Magazine, in dem 1799 auch der Reisebericht Bacstroms erschienen war, ein Schüler von Bacstrom gewesen sein. McLean gibt das Zulassungsdokument Tillochs in seinem Artikel wieder, das fast wörtlich mit dem entsprechenden Dokument Bacstroms übereinstimmt, wodurch es wahrscheinlicher wird, dass die als Bacstrom-Society bekannte Gruppe von Rosenkreuzern in England um 1800 tatsächlich existierte. Bemerkenswert bei diesem Dokument ist, wie auch McLean feststellt, das 4. Versprechen, in dem versichert wird, Frauen nicht von der Einweihung auszuschließen,
+
+„as there is no distinction of sexes in the spiritual world, neither amongst the blessed Angels nor among the rational immortal spirits of the Human race“
+
+„da es in der geistigen Welt keinen Unterschied der Geschlechter gibt, keinen unter den gesegneten Engeln noch unter den vernunftbegabten Geistern der menschlichen Rasse“
+
+wobei auf das Beispiel würdiger Frauen verwiesen wird. Namentlich werden genannt: [[Semiramis]], Königin von Ägypten(!), die Prophetin Mirjam, Perenelle, die Frau von Nicholas Flamel, und außerdem eine [[Leona Constantia]], „Äbtissin von Clermont“, die im Jahr 1736 als Soror Rosae Crucis aufgenommen worden sein soll.[
+
+Auffällig ist auch die Ähnlichkeit des bei Waite abgebildeten „Philosophischen Siegels“ von Bacstroms Society of Rosicrucians (Dreieck und Quadrat einem Kreis einbeschrieben) mit dem heute vom Lectorium Rosicrucianum verwendeten Emblem.
+
+Dem Zirkel Bacstroms in London sollen auch der Arzt und Astrologe [[Ebenezer Sibly]] (1751–ca. 1799) und der General [[Charles Rainsford]] (1728–1809) angehört haben. Über [[Frederick Hockley]] gelangte Arbeiten und Übersetzungen Bacstroms vermutlich in die Hände von [[William Alexander Ayton]] (1816–1909), [[William Wynn Westcott]] und[[ Samuel Liddell MacGregor Mathers]] und hatten damit Einfluss auf die Lehren des [[Hermetic Order of the Golden Dawn]], der wiederum die Entwicklung des westlichen Okkultismus im 20. Jahrhundert maßgeblich beeinflusste.
+
+Eine Sammlung der Manuskripte Bacstroms und anderer alchemistischer Schriften war seit 1923 im Besitz von [[Manly Palmer Hall]]. Nach dessen Tod 1990 wurden sie an das J. Paul Getty Museum in Malibu verkauft. Eine Bibliographie der Hallschen Sammlung erschien 1986. Digitalisate der Manuskripte sind im Internet Archive verfügbar.
+#17Jhd 

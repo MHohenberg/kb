@@ -1,0 +1,1 @@
+Frage: Ist es Zufall, dass pistis fast wie pisces (=Fische) klingt? Ggfs. Verweis zur Fischertätigkeit [[Jesus von Nazareth]] und seiner Apostel?

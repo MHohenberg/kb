@@ -1,0 +1,3 @@
+Naturheilkundler, rechtes Spektrum, "Influencer" mit rund 100k Followern vor allem auf Instagramm. 
+## Selbstdarstellung auf [[Philpeople]] 
+Henning Pless ist ein erfahrener Naturheilkundler mit über 28 Jahren Erfahrung im Bereich der Bauch- und Darmgesundheit. Henning Pless hat sich der ganzheitlichen Behandlung verschrieben und kombiniert Naturheilkunde mit wissenschaftlicher Diagnostik, um Grundursachen aufzudecken und die Lebensqualität seiner Patienten zu verbessern. 

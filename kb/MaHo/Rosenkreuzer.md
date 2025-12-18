@@ -1,0 +1,1 @@
+Lose Gruppe verschiedener Geheimbünde und Logen, die seit ca. dem 17 Jahrhundert auftreten. Entstanden aus Verbindungen von [Alchemisten](Alchemie), zunächst im Umfeld der [Freimaurerei](Freimaurer). Die meisten Rosenkreuzer berufen sich auf die *Chymische Hochzeit des [[Christian Rosencreutz]]*

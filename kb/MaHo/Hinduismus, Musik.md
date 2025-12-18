@@ -1,0 +1,1 @@
+Die Veden, als ältester religiöser Text, bietet bereits notierte Hymnen an!

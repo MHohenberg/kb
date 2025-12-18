@@ -1,0 +1,1 @@
+Nicht identifizierte Tierdarstellung im [alten Ägypten](Ägypten, Antike), teilweise in der Kunst, teilweise in [[Hieroglyphen]]. Das Tier kommt häufig in Kombination mit Seth vor. 

@@ -1,0 +1,1 @@
+Wenn wir davon ausgehen, dass das Universum vor allem eine "Erlebnisschmiede" eines höheren Bewusstseins ist (-> [[Brahmanismus]], [[Hinduismus]]), dann ist der Ausgang global gesehen irrelevant: Die Story an sich zählt. Eine gute Geschichte bedeutet nicht, dass jeder Protagonist ein Happy Ending hat. 

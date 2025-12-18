@@ -1,0 +1,4 @@
+"Kein Baum reicht zum Himmel, dessen Wurzeln nicht in der Hölle sind." -- [[Carl Gustav Jung]]
+
+Es sei aber Aufgabe des Magus, sich im [[Alchemie, spirituelle|alchemistischen]] Prozess zu wandeln, sich umzupolen in Hell oder Dunkel, in Schwarz oder  Weiß, je nach seinem Karma, oder, wie man sagt, der sphärischen Lagerung des  Objektes. Er soll die Lichter umpolen, um die Gegensätze zur Vereinigung zu führen. Ist sein Karma hell, so muss er das Dunkle imaginieren und das Helle mit dem  Dunklen verschmelzen. Wenn sein Karma aber Schwarz ist, so muss er das Weiße  erstreben und mit der Schwärze zur Einheit bringen. Der Rationalist muss seine  Seele entdecken, der Romantiker hingegen den rationalen Wesenszügen zur Erweckung verhelfen, um Ich und Es bzw. Es und Ich, Bewusstes und Unbewusstes,  bzw. Unbewusstein und Bewusstsein miteinander vereinigen zu können.
+ [[Adolf Hemberger]]: "Der mystischmagische Orden Fraternitas Saturni" (ab ca S.243)

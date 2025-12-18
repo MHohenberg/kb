@@ -1,0 +1,1 @@
+Eine Stadt, circa 1910, aber historisch mit einem Twist: die Stadt ist horizontal gebaut. Um über verschiedene Ebenen zu kommen, gibt es überall in der Stadt Aufzüge. Der größte ist ein circa 100 Jahre alte Aufzug aus Ketten und einem Gebäude, so groß wie ein Stadtviertel, mit John Toren als Aufzugskabinen. Das ganze ist sehr filigran und grimey.

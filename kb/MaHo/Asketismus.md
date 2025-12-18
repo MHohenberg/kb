@@ -1,0 +1,1 @@
+Asketische Lebensweisen finden sich im [[Hinduismus]] (=> Waldbewohner) und im Christentum ([Eremiten](Eremit))

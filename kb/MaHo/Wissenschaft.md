@@ -1,0 +1,2 @@
+Science is excellent in doing what is was designed to do, but it has expanded its providence into all reality and and seeks to pass judgement in areas where it has no real business going. It's a very limited method that achieves its claim to universality by wildly exaggerating its accomplishments. 
+-- [[Terence McKenna]] Calling The Butterflies - Workshop, 7 February 1992 Esalen Institute, Big Sur CA. -> [[Scientism]]

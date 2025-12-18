@@ -1,0 +1,1 @@
+In the Hebrew Bible, Nephilim (/ˈnɛfɪˌlɪm/; Hebrew: נְפִילִים Nəfīlīm) are ==mysterious beings, often translated as "giants" or "fallen ones," who are said to be large and strong==, and are mentioned in [[Genesis]], Numbers, and possibly [[Ezekiel]]. Their origin and identity are debated, with some interpretations suggesting they were the offspring of divine beings and humans.

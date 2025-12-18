@@ -1,0 +1,2 @@
+ Furcht ist die Emotion des [unerleuchteten](Erleuchtung), animalistischen Wesens. Es ist die zivilisierteer Fassung des [[Flucht-oder-Kampf-Prinzip]]s, die Idee, dass das eigene Leben und oder eigenes Gut bedroht sein könnten. 
+ Aber: erreicht man einen erleuchteten Zustand, dann weiß man: materielle Güter sind fiktiv, die eigene Fortexistenz nicht wichtig. Und damit ist die Furcht an sich irrational.

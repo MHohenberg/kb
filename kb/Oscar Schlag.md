@@ -1,0 +1,1 @@
+Indirekte Berührungspunkte gab es zwischen [[Carl Gustav Jung]] allenfalls über dritte Personen. So war z.B. der Zürcher Okkultist Oscar Schlag sowohl mit Jungianern bekannt als auch mit [[Herrmann Josef Metzger|Metzgers]] Kreis; Schlag besuchte Metzger einmal in Stein

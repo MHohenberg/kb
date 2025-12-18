@@ -1,0 +1,1 @@
+Original location "Highclere Castle" gehörte der Familie des Mannes, der [[Tut ench Amun]] gefunden hat (5. Earl of Carnarvon, zusammen mit seiner Tochter Evelyn und  [[Howard Carter]])

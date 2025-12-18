@@ -1,0 +1,1 @@
+Sozialistisch-kommunistischer Philosoph. 

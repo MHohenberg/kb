@@ -1,0 +1,3 @@
+_Of all tyrannies, a tyranny sincerely exercised for the good of it's victims may be the most oppressive. It would be better to live under robber barons than under omnipotent moral busybodies. The robber baron's cruelty may sometimes sleep, his cupidity may at some point be satiated; but those who torment us for our own good torment us without end, for they do so with the approval of their own conscience._
+
+-C.S. Lewis

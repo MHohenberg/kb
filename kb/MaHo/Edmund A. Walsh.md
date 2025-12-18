@@ -1,0 +1,6 @@
+
+Der 1885 in South Boston, Massachusetts, geborene Edmund A. Walsh begann sein Noviziat bei den [[Jesuiten]] und studierte Philosophie in Maryland, bevor er an der Vorbereitungsschule der [[Georgetown University]] unterrichtete und in Irland, England und Österreich-Ungarn studierte. Walsh wurde 1916 zum Priester geweiht und ein Jahr später zum Dekan des Georgetown College ernannt, doch sein Dekanat wurde bald unterbrochen. Das Kriegsministerium bat ihn um seine Mitarbeit in einem Gremium von fünf Pädagogen, die das akademische Programm für das [[Student Army Training Corp]]. ausarbeiteten. Das Training Corp bildete neue Militärangehörige aus, die sich auf den Eintritt der USA in den Ersten Weltkrieg vorbereiten sollten.
+
+Diese Erfahrung lenkte seine Aufmerksamkeit auf die fehlende amerikanische Ausbildung im Bereich der [[Diplomatie]], was P. Walsh bei der Konzeption der SFS half. Er erkannte, dass die Georgetown University mit ihrer Lage in Washington DC und ihren Werten des Dienstes der ideale Ort für die erste Schule der Vereinigten Staaten für internationale Angelegenheiten sein würde.
+
+Schule wurde 1967 nach ihm benannt. 

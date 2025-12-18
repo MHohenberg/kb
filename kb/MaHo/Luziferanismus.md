@@ -1,0 +1,1 @@
+Versteht [[Luzifer]] als benevolente Figur, die Wissen brachte (in [[Genesis]] 3) - während der [christliche](Christentum) Gott eine Figur ist, die Ignoranz und [[Furcht]] symbolisiert. 

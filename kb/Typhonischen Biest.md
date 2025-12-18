@@ -1,0 +1,2 @@
+Tierdarstellung in ägyptischen Hieroglyphen, welche nicht unmittelbar einem heute existierenden Tier zugeordnet werden kann. Je nach Darstellung könnte es sich um ein hundeartiges oder [[Esel, religiöses Motiv|eselartiges]] Tier handeln. 
+Das Typhonische Biest wird mit dem Gott [[Seth]] assoziiert. 

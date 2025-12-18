@@ -1,0 +1,1 @@
+Teilbereich der [[Psychologie]], Hauptvertreter [[Sigmund Freud]], [[Carl Gustav Jung]], [[Adler]]

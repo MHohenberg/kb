@@ -1,0 +1,1 @@
+If we agree life (or even just human life) is the highest good, to be protected at all costs, then anything that destroys life is the ultimate evil.

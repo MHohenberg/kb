@@ -1,0 +1,1 @@
+Filmgenre, vor allem aus Deutschland und vor allem aus der 1. Hälfte des 20. Jahrhunderts. Gilt unter anderem als künsterlische Herkunft von [[Leni Riefenstahl]].

@@ -1,0 +1,6 @@
+Auch Epilepsia saltatoria, Tanzkrankheit, Tanzsucht, Tanzplage, Tanzpest oder Choreomanie
+
+Epidemische Erscheinung im 14. und 15. Jahrhundert, wird als [psychogenes](Psychogenie) und massenhysterisches Phänomen beschriebem. Große Gruppen von Menschen (genannt dansatores, chorisantes oder chorisatores) tanzten anscheinend willenlos, bis sie erschöpft oder verwundet zusammenbrachen.
+
+Eine Vermutung betrifft religiöse [[Ekstase]], eine andere die halluzinogene Wirkung pflanzlicher Drogen, zum Beispiel durch Nachtschattengewächse wie das [[Bilsenkraut]], oder Vergiftungserscheinungen durch das aus dem Getreide stammende [Mutterkorn](Ergot), die für diese Phänomene ursächlich waren. 
+Eine andere Erklärung ist der Biss der Europäischen Schwarzen Witwe, deren Gift zu unwillkürlichen neuromuskulären Entladungen führt und neben heftigen Schmerzen Muskelkrämpfe auslöst, die unbehandelt tagelang anhalten können. Zwar wurden die Symptome schon bald auf den Biss einer Spinne zurückgeführt, doch wurde die Apulische Tarantel dafür verantwortlich gemacht, die zwar wesentlich weniger Gift als die nachtaktive Europäische Schwarze Witwe besitzt, dafür aber viel größer als diese und auch tagsüber aktiv ist. Hierher rührt die Redensart „wie von der Tarantel gestochen“ für aufbrausendes oder unkontrolliertes Verhalten.

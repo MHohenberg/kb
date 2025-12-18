@@ -1,0 +1,2 @@
+Saal in Jerusalem auf dem Berg [[Zion]] in einer im Mittelalter von Kreuzrittern erbauten heutigen Franziskanerkirche. Gilt als "Abendmahlsaal", dadurch Ziel von Pilgerreisen. 
+Vgl [[Spätmittelalterliche Graffiti Pilger kritzelten an die Wände des Abendmahlsaals]].

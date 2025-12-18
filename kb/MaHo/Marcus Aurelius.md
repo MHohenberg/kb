@@ -1,0 +1,1 @@
+Römischer Kaiser zwischen 161-180. Der letzte der [[Fünf guten Kaiser]]. [Stoiker](Stoizismus).

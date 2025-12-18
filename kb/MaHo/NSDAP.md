@@ -1,0 +1,1 @@
+Ging aus der sozialistischen [[Deutschen Arbeiterpartei]] hervor. Lange geleitet von [[Adolf Hitler]].

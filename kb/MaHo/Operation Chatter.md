@@ -1,0 +1,1 @@
+Operation Chatter war ein Vorläufer von [[MKULTRA]], eine gemeinsame [[CIA]]-Naval intelligence Operation die an Gefangenen mit  [[Meskalin]] und anderen Drogen experimentierte.

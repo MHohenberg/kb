@@ -1,0 +1,2 @@
+## Klimabewegung
+Mitte Juni 2023 kam es zu verschiedenen Protestaktionen der [[Letzte Generation]] auf Flughäfen in Hamburg, Düsseldorf und Berlin (Ende November 2022). Die Lufthansa - und ihre Töchter kündigten am 1. August 2023 die Einklagung von Schadensersatzforderungen an. 

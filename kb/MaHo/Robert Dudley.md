@@ -1,0 +1,1 @@
+Britischer Höfling und mustmaßlich Liebhaber von [[Elizabeth I.]].

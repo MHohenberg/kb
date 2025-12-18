@@ -1,0 +1,1 @@
+Der Goblins-Zwischenfall wird als Interaktion mit Jungeulen interpretiert. 

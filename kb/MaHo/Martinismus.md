@@ -1,0 +1,1 @@
+Eine Form [christlichen](Christentum) Mystizismus aus dem Umfeld der [[Freimaurer]], die sich vor allem mit dem Sündenfall beschäftigen, der Abgeschnittenheit der Menschheit von einer göttlichen Quelle, und die Wiedererlangung dieser Verbindung (die im Martinismus "Reintegration" genannt wird)

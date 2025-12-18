@@ -1,0 +1,1 @@
+Eine der Hauptsutren des [[Zen]] - Lehrrede des 6. [Patriarchen](<Zen, Patriarch>) 

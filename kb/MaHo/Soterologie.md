@@ -1,0 +1,1 @@
+Teilbereich der Theologie. Lehre von der Erlösung aller Menschen aller Menschen im christlichen Kontext. 

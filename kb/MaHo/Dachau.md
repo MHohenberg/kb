@@ -1,0 +1,1 @@
+Laut Erzählungen meines Großvaters väterlicherseits war er nach dem Krieg für einige Zeit in Dachau, bevor er in die Lüneburger Heide entlassen wurde.
